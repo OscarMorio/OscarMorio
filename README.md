@@ -1,1 +1,1 @@
-**Welcome to my Github profiles, I am Oscar**
+**Welcome to my Github profile**
